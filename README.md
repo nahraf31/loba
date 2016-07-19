@@ -1,2 +1,1 @@
 # loba
-imam ganteng
